@@ -2,7 +2,7 @@
 
 ***
 **Links:**\
-[YouTube](https://twitter.com/Magic_Nipples) - Conversion to VS2019.
+[YouTube](https://twitter.com/Magic_Nipples)
 
 **Donations:**\
 [Patreon](https://www.patreon.com/magicnipples) \
